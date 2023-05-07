@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Rahul-Sandhli-Ramesh
 - 👀 Coordinator at MARVEL, UVCE
-- 🌱 I’m currently an undergrad student of Electrical and Electronics Engineering @ UVCE, Bangalore
+- 🌱 Undergrad student of Electrical and Electronics Engineering @ UVCE, Bangalore
 - 📫 How to reach me : rahul.sandli.ramesh@gmail.com
 
 <!---
