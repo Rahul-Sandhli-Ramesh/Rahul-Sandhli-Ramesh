@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Rahul-Sandhli-Ramesh
-- 👀 I’m interested in space exploration, electric mobility and renewable energies
+- 👀 Coordinator at MARVEL, UVCE
 - 🌱 I’m currently an undergrad student of Electrical and Electronics Engineering @ UVCE, Bangalore
 - 📫 How to reach me : rahul.sandli.ramesh@gmail.com
 
